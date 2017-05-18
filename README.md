@@ -1,3 +1,3 @@
 # KVIZ
 
-Naèrt še nastaja.
+NaÄrt Å¡e nastaja.
